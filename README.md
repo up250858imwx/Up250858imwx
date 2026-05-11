@@ -6,6 +6,8 @@
 ***
 ##link de un vídeo interesante 
 (https://youtu.be/_HEC-ioPY6I?si=yr7e_gIkXJHLrr0f)
+***
+*Egresada del cbtis 279*
 <!--
 **up250858imwx/Up250858imwx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
