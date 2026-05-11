@@ -2,7 +2,7 @@
  ***
 **nuevo repositorio**
 ***
-⚾🖥️🙂
+*gustos en emojis* ⚾🖥️🙂
 ***
 ##link de un vídeo interesante 
 (https://youtu.be/_HEC-ioPY6I?si=yr7e_gIkXJHLrr0f)
